@@ -1,0 +1,5 @@
+# Reading Response, Francis Tseng's *The Founder*
+
+The Founder is a game that communicates an argument about capitalism in the age of information and startups. By placing you in the position of owning and operating a startup company, you become intimately familiar with the system that propels this process. Decisions get made based on how happy your board is with your profit margins, rather than what might benefit society or fall in line with your company's original intent. The default company name is Happy Corp, however in playing the game I earned the most money by shilling as a defense contractor.
+
+While I eventually won the game, my sense of accomplishment became deflated after the repetition of appeasing the board and expanding to new market places was too much to bear. It's as if the point of running a company was completely dissolved into pure profit-motivation. I had forgotten why I started the company to begin with.
